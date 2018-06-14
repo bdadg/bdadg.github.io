@@ -9,7 +9,8 @@ All Alumni members with their profiles updated.
 
 ![](https://scontent-ams3-1.xx.fbcdn.net/v/t1.0-9/35302423_124715128419695_4313844175482126336_n.jpg?_nc_cat=0&_nc_eui2=AeGJdyZzlErWQGDX7XtskHUa6I6tJ8iNFzwazsbVAUpJ_99f6-hbQDGCAHkNYJCyj9PxJpAk_r-t7ibUsIiJJOfkTjpOWMmsIAWr01shwnPMTw&oh=ad263c87d6857fe055fb4927d70278e4&oe=5BBB557D)
 
-#More
+# More
+
 You can view more details of a member by clicking the More button.
 
-![](blob:https://www.facebook.com/1514fa3a-f167-49a3-803b-3c3359f2792a)
+![](https://scontent-ams3-1.xx.fbcdn.net/v/t1.0-9/35283752_124718211752720_4851680892483010560_n.jpg?_nc_cat=0&_nc_eui2=AeHEJg7ETkE9rSxqrZsrb42Nr7D7Oq09iFkoMIbHyVRs4EFjyADGB_WFJx-lqTIOXM7mOVdFRzuLqQTxgF2fwMFXKIghbBaEmTl-yhSHTzgJ2Q&oh=b1e4761d91fc8b2b435b280f28b81c54&oe=5BBAC9DA)
